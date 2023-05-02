@@ -1,1 +1,1 @@
-# Loja Atualização dia 25/04
+# Loja Atualização dia 02/05
